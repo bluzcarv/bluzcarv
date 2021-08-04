@@ -2,7 +2,7 @@ Beatriz Luz
 
 A visual artist who wishes to expand her knowledge in programming to possibly merge these two worlds. 
 
-I’m currently at 42's base-camp. 
+I’m currently at 42 SP. 
 
 I’m looking to collaborate with creative, open-minded people. 
 
